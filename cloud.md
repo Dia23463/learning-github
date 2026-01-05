@@ -7,7 +7,7 @@ Fluttering and dancing in the breeze.
 
 Continuous as the stars that shine
 And twinkle on the milky way,
-They stretched in never-ending lip
+They stretched in never-ending line
 Along the margin of a bay:
 Ten thousand saw I at a glance,
 Tossing their heads in sprightly dance.
